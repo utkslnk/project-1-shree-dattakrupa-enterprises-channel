@@ -1,1 +1,1 @@
-# project-1-shree-dattakrupa-enterprises-channel
+# project-1-shree-dattakrupa-enterprises
